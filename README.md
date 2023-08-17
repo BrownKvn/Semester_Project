@@ -1,0 +1,5 @@
+# Semester_Project
+AMEYAW AKUMFI NANA KUFFOUR
+UEB3238922
+BSc.Information Technology C
+HOTEL MANAGEMENT SYSTEM
